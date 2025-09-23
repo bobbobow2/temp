@@ -1,3 +1,3 @@
 # temp
 for practise
-ОМП 2025
+ОМП 2026
